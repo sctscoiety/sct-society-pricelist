@@ -1,1 +1,0 @@
-# sct-society-pricelist
